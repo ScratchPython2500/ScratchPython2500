@@ -2,7 +2,7 @@
 >You probably won't understand what my stuff is.
 >No worries, because I'm Chinese.
 
-'I hope：'
+' I hope: '
 - we can **get along well**,
 - without **any** conflicts,
 - and **grow together!**
